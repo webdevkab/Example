@@ -1,6 +1,0 @@
-My name is Karla. I am learning how to use Command Prompt on 09142014!
-
-Well. Hey now!
-dlkhffffffffffffffffffffffff
-dhfhhhhh	dkfh
-dklfm
